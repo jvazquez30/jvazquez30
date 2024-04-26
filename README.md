@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **josevazquez881@gmail.com**
 
-- ⚡ Fun fact **I love working out and**
+- ⚡ Fun fact **I love working out **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
